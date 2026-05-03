@@ -1,1 +1,1 @@
-this is gonna take so long. ohmy god redoing
+just read my strawpage bro i give up
